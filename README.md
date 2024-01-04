@@ -1,6 +1,6 @@
 # hey
 
-my name is alex. i write code. and do other stuff. sometimes i dont write code and that is okay. but sometimes i do.
+my name is faye. i write code. and do other stuff. sometimes i dont write code and that is okay. but sometimes i do.
 
 # some things about me
 
